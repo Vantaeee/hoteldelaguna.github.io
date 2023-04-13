@@ -1,0 +1,1 @@
+# hoteldelaguna.github.io
